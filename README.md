@@ -2,7 +2,7 @@
 
 Kelas Informatika PCD - D
 
-Nama Kelompok : 
+Nama Kelompok 10 : 
 
 Muhammad Bima Zehansyah   145150207111011
 
